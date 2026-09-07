@@ -1,0 +1,1 @@
+# Alkitab-Bible-Study-Full-Version
